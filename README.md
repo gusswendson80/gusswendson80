@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on of the aforementioned
 - 📫 How to reach me g@nakedlogic.net
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: frankston hospital (peninsula health) did me no favours...dan andrews is to blame as is his missapparopriation of big build funds
+- ⚡ Fun fact: frankston hospital (peninsula health) did me no favours...dan andrews is to blame as is his missapparopriation of big build funds just look at the individual building funds...
