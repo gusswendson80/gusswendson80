@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @gusswendson
+- 👋 Hi, I’m @gusswendson80 - this account exists because hackers stole my google workspaces account linked to github.
 - 👀 I’m interested in ICT and AI & Physics
 - 🌱 I’m still learning
 - 💞️ I’m looking to collaborate on of the aforementioned
