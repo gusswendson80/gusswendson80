@@ -1,1 +1,7 @@
-
+- 👋 Hi, I’m @gusswendson
+- 👀 I’m interested in ICT and AI & Physics
+- 🌱 I’m still learning
+- 💞️ I’m looking to collaborate on of the aforementioned
+- 📫 How to reach me angus@nakedlogic.net
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: frankston hospital did me no favours...dan andrews is to blame as is his missapparopriation of big build funds
